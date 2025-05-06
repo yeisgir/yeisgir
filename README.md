@@ -1,5 +1,5 @@
 # Yeison Giraldo Osorio 🚀  
-**Ingeniero en Telecomunicaciones | Especialista en Cloud & Seguridad**  
+**Ingeniero en Telecomunicaciones**  
 
 ---
 
